@@ -1,0 +1,1 @@
+# X-Trade-e-commerce is a place that uses purchased items and resells them for good deals and If people want to sell using this platform they have to pay a small commision of 10% in their sales for that month instead of amazons weekly rule!
